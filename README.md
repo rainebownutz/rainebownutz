@@ -1,6 +1,6 @@
 
 
-HELLOO !! IM RAINE, i will make this pretty in the future trust 
+HELLOO !! IM RAINE, i will make this pretty in the future trust im rlly lazy :(
 
 
 
