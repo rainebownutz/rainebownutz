@@ -1,5 +1,4 @@
-https://i.pinimg.com/736x/87/ac/dd/87acddbf6cf55b5da61f23a58e2d4317.jpg![87acddbf6cf55b5da61f23a58e2d4317](https://github.com/user-attachments/assets/47501193-a64f-4b77-a821-d589f05452d5)
-
+how tf do u do ts shit.
 
 
 
